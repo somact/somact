@@ -1,1 +1,1 @@
-👋 Hi, I’m @somact.Welcome to my profile!
+👋 Hi, I’m @somact. Welcome to my profile!
